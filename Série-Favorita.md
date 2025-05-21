@@ -42,7 +42,7 @@ Pontos fortes:
 
 ---
 
-[Link de um pôster de The Walking Dead](https://www.google.com/url?sa=i&url=https%3A%2F%2Foglobo.globo.com%2Feconomia%2Fprodutora-de-the-walking-dead-quer-manter-zumbis-bem-vivos-nos-proximos-anos-23084245&psig=AOvVaw2znjWlKBQ7MX2Uen-uPJEw&ust=1747941124399000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCLj326SitY0DFQAAAAAdAAAAABAE)
+[Link de um pôster de The Walking Dead](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.purebreak.com.br%2Fnoticias%2Fem-the-walking-dead-na-8-temporada-saiba-o-que-vai-acontecer-no-retorno-da-serie%2F69445&psig=AOvVaw3FVksE5MIhAL78EpyWuoMf&ust=1747942240581000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPDAkrmmtY0DFQAAAAAdAAAAABAL)
 
 ---
 
@@ -62,4 +62,4 @@ Pontos fortes:
 ---
 
 ## Porque é especial para mim?
- Essa série foi uma das primeiras que assisti quando criança, tinhamos hátibos para ir assistir a série, me apeguei muito a certos personagens que até hoje sinto falta deles ou muito animada em vê-lo. Já assisti e reassisti muitas e muitas vezes e sempre aprendo algo novo.
+ Essa série foi uma das primeiras que assisti quando criança, tinhamos hábitos para ir assistir a série, me apeguei muito a certos personagens que até hoje sinto falta deles ou muito animada em vê-lo. Já assisti e reassisti muitas e muitas vezes e sempre aprendo algo novo.
